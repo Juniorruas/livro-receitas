@@ -33,3 +33,7 @@ Acrescente o fermento e misture lentamente com uma colher.
 Asse em um forno preaquecido a 180° C por aproximadamente 40 minutos.
 
 #### COBERTURA
+
+Despeje em uma tigela a manteiga, o chocolate em pó, o açúcar e o leite, depois misture.
+
+Leve a mistura ao fogo e continue misturando até obter uma consistência cremosa, depois despeje a [calda por cima do bolo](https://www.tudogostoso.com.br/receita/109721-cobertura-de-chocolate-com-leite-condensado.html).
