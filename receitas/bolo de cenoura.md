@@ -32,4 +32,3 @@ Acrescente o fermento e misture lentamente com uma colher.
 
 Asse em um forno preaquecido a 180° C por aproximadamente 40 minutos.
 
-#### COBERTURA
